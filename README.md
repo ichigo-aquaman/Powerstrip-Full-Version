@@ -1,0 +1,1 @@
+# Powerstrip-Full-Version
